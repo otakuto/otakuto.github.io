@@ -1,0 +1,1 @@
+# otakuto.github.io
